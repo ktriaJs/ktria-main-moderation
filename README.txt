@@ -1,1 +1,3 @@
 MAİN MODERASYON BOTUMU 20 STARDA VERECEĞİM ":)
+
+iletişim için ktria#0909
